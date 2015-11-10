@@ -95,7 +95,7 @@
 [李梦琪](https://cloud.githubusercontent.com/assets/14888633/11033521/ce558402-871e-11e5-80cb-87ff4814b5ca.png)
 
 [刘文](https://cloud.githubusercontent.com/assets/14888667/11033798/3f30feac-8721-11e5-9a39-fd308332aced.png)
-
+[吴先明](https://github.com/wxm123456789/WBS.mds/blob/master/吴先明WBS.md)
 
 
 
